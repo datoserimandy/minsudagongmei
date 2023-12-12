@@ -9,11 +9,12 @@
 
 国宝级绫买家
 
-微博：民宿打工妹999 https://weibo.com/u/6498482379<br>
-小红书：民宿打工妹999 https://www.xiaohongshu.com/user/profile/5feaa588000000000100a3af?xhsshare=CopyLink&appuid=5c878d36000000001100f7d2&apptime=1658843683<br>
+微博：民宿打工妹9 https://weibo.com/u/7772277118<br>
+小红书：民宿打工妹 https://www.xiaohongshu.com/user/profile/5feaa588000000000100a3af?xhsshare=CopyLink&appuid=5c878d36000000001100f7d2&apptime=1658843683<br>
 抖音：民宿打工妹99  ID：minsudagong
 https://www.iesdouyin.com/share/user/MS4wLjABAAAAXntr930_14sYQx2tF7Gw1nYQjQdiLBZ5LI0tWJTnekE?did=MS4wLjABAAAAeZuLJatDZSqwutPwLxxF3biUsI7P16Wnj6738iVgepw&iid=MS4wLjABAAAA7yeIXjW5hWAlAkCo4tT6Y13ze-FBcMJrQd1iOTiZMxA&with_sec_did=1&sec_uid=MS4wLjABAAAAXntr930_14sYQx2tF7Gw1nYQjQdiLBZ5LI0tWJTnekE&u_code=153b7gmb5&ecom_share_track_params=%7B%22is_ec_shopping%22:%221%22%7D&utm_campaign=client_share&app=aweme&utm_medium=ios&tt_from=copy&utm_source=copy<br>
-
+XX (Formerly Twitter):民宿打工妹 ID:minsudagongmei9 https://twitter.com/minsudagongmei9<br>
+Instagram：民宿打工妹 ID：minsudagongmei9 https://www.instagram.com/minsudagongmei9<br>
 <!-- 绝世无双的老师 -->
 <div align="center" ><img order-radius="100px" src="https://img1.imgtp.com/2022/08/01/l4NbEZEw.jpeg"/></div>
 <br>
