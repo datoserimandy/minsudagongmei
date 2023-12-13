@@ -21,7 +21,7 @@ Instagram：民宿打工妹<br>
 ID：minsudagongmei9<br>
 https://www.instagram.com/minsudagongmei9<br>
 <!-- 绝世无双的老师 -->
-<div align="center" ><img order-radius="100px" src="https://img1.imgtp.com/2022/08/01/l4NbEZEw.jpeg"/></div>
+<div align="center" ><img order-radius="100px" src="https://picdl.sunbangyan.cn/2023/12/13/0ec81a8f377e93f57459e45e6ac3b893.jpeg"/></div>
 <br>
 
 ![image](https://www.freeimg.cn/i/2023/12/13/65790f71976e2.jpg)
